@@ -2,7 +2,7 @@
 
 ## Alumno/s
 
-- Alumno/a 1 (@Cristian96g)
+- Gómez Cristian 1 (@Cristian96g)
 
 ## Observaciones
 
